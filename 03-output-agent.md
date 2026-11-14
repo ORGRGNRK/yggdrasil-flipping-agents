@@ -59,7 +59,7 @@ Comes with: Phone only
 **Price: $[recommended] OBO**
 
 **Pickup / Delivery:**
-- Tracy local pickup free
+- [Your city] local pickup free
 - Local delivery available for small fee
 - Shipping available (buyer pays)
 
